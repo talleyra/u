@@ -1,6 +1,13 @@
 ---
 title: Welcome to Quartz
 ---
+Why?
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+## Entrypoints
+
+Main Questions:
+
+
+Basis:
+
+[[Terms of draft peace treaty 2022]]
