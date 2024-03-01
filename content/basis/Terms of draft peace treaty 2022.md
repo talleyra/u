@@ -23,3 +23,8 @@ Russia wanted all guarantor states to agree on a response (!!), meaning that a u
 Russia wanted Kyiv to withdraw claims to the jurisdiction of the International Criminal Court, which prosecutes war crimes.
 
 Russia requested the lifting of all mutual sanctions.
+
+
+
+
+
