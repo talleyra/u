@@ -8,6 +8,9 @@ Why?
 Main Questions:
 
 
-Basis:
 
+Splinters:
+[[Why Ukraine can win]]
+
+Basis:
 [[Terms of draft peace treaty 2022]]
