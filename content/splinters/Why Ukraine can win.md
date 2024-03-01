@@ -37,7 +37,16 @@ The West wants it can provide so much military aid that it would exceed Russian 
 
 
 "Ukraine has achieved operational successes that people did not anticipate. Russia has limited offensive potential and won't so long as Ukraine continues to be supplied by it's western partners, which is a big 'if'."
+
 (...)
+
 "In longer wars economic potential translates into denying the adversary's logistics and supplying your side. The economic preponderance that the West has over Russia is enormous. It should be easy for us to supply Ukraine, yet we have been slow but getting there."
+
 (...)
+
 "Even if USA supplemental doesn't pass even the EU + UK alone can substantially outmatch Russia."
+
+
+"Another thing that people get wrong is that they confuse their own implicit presuppositions about countries with military potential. For a long time, for hundreds of years we in the West have emed the notion that Russia is a big culture and that Ukraine is some kind of annex to the Russian culture and I think that the Russians have understood this in various regimes over a very long period of time and so when you get to February 22, it appears that people are making these kinds of strategic arguments but behind the strategic arguments is the implicit notion that Russia is real and Ukraine is not. 
+
+And I think that implicit assumption was mistaken and that there there are ways in which you can very easily argue that the Ukrainian nation is more consolidated than the Russian that empirical reality is not something that people took on board. People were operating more within the kind of abstractions of a great power and a little power. The notion of great 'powerdom' or great 'powerness' arose from implicit unexamined notions that ultimately had to do with cultural stereotypes rather than from a bottom to top examination" 
